@@ -1,0 +1,1 @@
+Alguś się kłania
